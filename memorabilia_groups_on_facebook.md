@@ -8,7 +8,7 @@
 
 ## History and Preservation
 * [Scouting Memorabilia Preservation and Displays](https://www.facebook.com/groups/433101806725564/)
-* Add your group here!
+* [Scout Medical Badges and Memorabilia] (http://scoutmedicalbadges.weebly.com)
 
 ## Special Events
 * [2010 National Jamboree Patch and Memorabilia Collectors](https://www.facebook.com/groups/196525167549255)
